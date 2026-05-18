@@ -1,4 +1,4 @@
-# 
+# Inteligente Adobe Premiere Pro para PC scripts es el mejor Adobe Premiere Pro para PC scripts con preajustes de exportación y procesamiento por lotes. Seguro, confiable y
 
 
 
